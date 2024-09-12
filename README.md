@@ -1,2 +1,2 @@
 # latihan_branch
-** berak di wc
+** berak di celana
